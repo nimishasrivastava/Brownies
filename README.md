@@ -1,0 +1,1 @@
+A brownie or broonie (Scots), also known as a brùnaidh or gruagach (Scottish Gaelic), is a household spirit from Gaelic folklore that is said to come out at night while the owners of the house are asleep and perform various chores and farming tasks.
